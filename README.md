@@ -1,1 +1,1 @@
-bye bye microsoft. please visit https://git.osuv.de/m/markuman/zsun_fun
+bye bye microsoft. please visit https://git.osuv.de/m/zsun_fun
